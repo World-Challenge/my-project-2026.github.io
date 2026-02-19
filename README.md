@@ -1,1 +1,1 @@
-# my-project-2026.github.io
+# my-project-2026
